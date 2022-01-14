@@ -5,6 +5,6 @@ Feel free to add link to this place if you use any of the images.
 
 If you need something custom made you can also contact me directly via discord/steam and I might be able to make something for your mods: 
 
-Steam: https://steamcommunity.com/id/thomasstone/
+SHUT Discord where I lurk and accept requests/share WIP's: https://discord.gg/96PdpgUqc7
 
-Discord: Tom Stone#0118
+Steam: https://steamcommunity.com/id/thomasstone/
